@@ -10,4 +10,4 @@
 
 
 - $.C
-<img align="right" alt="coding" width="400" src="https://media2.giphy.com/media/RbDKaczqWovIugyJmW/giphy.gif">
+<img align="right" alt="coding" width="400" src="https://media2.giphy.com/media/RbDKaczqWovIugyJmW/giphy.gif?cid=6c09b952hwkzhz55thp408lx4sn7tp6cuj3ax880rxvbzk6b&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g">
