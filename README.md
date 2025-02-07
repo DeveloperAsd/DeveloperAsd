@@ -1,7 +1,6 @@
 ## Mr aMir
 
-- channel Telegram : <a href="https://t.me/Mw_hack">Mw_hack</a>
-- contact with me : <a href="https://t.me/Personer">Admin</a>
+- <a href="https://t.me/Mw_hack"><img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/82/Telegram_logo.svg/768px-Telegram_logo.svg.png" width=14 height=14 /> 𝐂𝐡𝐚𝐧𝐧𝐞𝐥 𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦</a>
 
 -------------------------- 
 <img src="https://s6.uupload.ir/files/7587df77ef521cf98057d0028ee983f1_9l33.gif">
