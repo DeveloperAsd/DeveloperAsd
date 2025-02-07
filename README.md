@@ -4,7 +4,7 @@
 - contact with me : <a href="https://t.me/Personer">Admin</a>
 
 -------------------------- 
-<img src="https://s6.uupload.ir/files/picsart_22-12-08_12-55-53-038_nhtg.jpg">
+<img src="https://pin.it/2BeKUhVvh">
 
 - Ꮖ ᎳᏆᏞᏞ ᎡᎾᎪᎡ ᏆᏁ ᏚᏆᏞᎬᏁᏟᎬ
 
