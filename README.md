@@ -1,4 +1,4 @@
-## Mr aMor
+## Mr aMir
 
 - channel Telegram : <a href="https://t.me/Mw_hack">Mw_hack</a>
 - contact with me : <a href="https://t.me/Personer">Admin</a>
